@@ -1,0 +1,1 @@
+# wellxness-bimi-logo
